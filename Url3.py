@@ -1,0 +1,1 @@
+Need to carry out redirection www.anz.com/creditcard/personalloan to www.anz.com/credit
